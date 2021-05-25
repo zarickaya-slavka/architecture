@@ -14,7 +14,7 @@ Huge floor-to-ceiling windows allow you to observe marine life, with even sharks
 
 ## 11 underwater suites Resorts World Sentosa (Singapore)
 
-![Image](zarickaya-slavka3.jpg)
+![Image](zarickaya-slavka3.jpeg)
 
 Nestled in the heart of the world's largest aquarium are 11 of Resorts World Sentosa's exclusive underwater suites, designed as luxury two-story townhomes. The creators of the unique hotel suites have managed to provide an unforgettable vacation both on land and at sea. And that means guests can enjoy relaxation and sea air in the cozy living room or on the outdoor patio with a Jacuzzi. They are located on the upper level, but for a special experience it is better to go down to the bedroom.
 
